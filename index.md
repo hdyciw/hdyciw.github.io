@@ -11,3 +11,7 @@ Bernd das Brot ist seit 2000 im Kinderfernsehkanal KiKa zu sehen.
 * fatalistisch und in depressiver Stimmung
 * kurzarmig
 * Rauhfasertapetenfan
+
+## Sein Motto:
+
+> Mist!
