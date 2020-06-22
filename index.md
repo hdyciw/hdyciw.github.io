@@ -5,3 +5,9 @@ Der Brotlaib bildet den Kopf und den Rumpf der Figur; die Hände befinden sich d
 
 Bernd das Brot ist seit 2000 im Kinderfernsehkanal KiKa zu sehen.
 
+## Eigenschaften
+
+* von der Art *Homo Brotus Depressivus*
+* fatalistisch und in depressiver Stimmung
+* kurzarmig
+* Rauhfasertapetenfan
