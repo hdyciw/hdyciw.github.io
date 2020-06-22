@@ -15,3 +15,7 @@ Bernd das Brot ist seit 2000 im Kinderfernsehkanal KiKa zu sehen.
 ## Sein Motto:
 
 > Mist!
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/9/94/Bernd_das_Brot_Erfurt.JPG"/>
+(from: Wikimedia Commons. Author: Michael Sander. This file is licensed under the Creative Commons Attribution-Share Alike 3.0 Germany license.)
+
